@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Ema-00v, but you can call me Ema (just Ema, thanks)
+- 👀 I’m interested in drought in a multidimensional and interdisciplinary sense, integrating more classic hydrological approaches and qualitative approaches informed by political ecology
+- 🌱 I’m currently learning how to work with drought index series as well as how to conduct surveys on drought
+- 📫 How to reach me emanuele.mombrini@gmail.com
+- 😄 Pronouns: they/them
+- ⚡ Fun fact: I've played bass for a number of years but I still can't double thumb well :/
